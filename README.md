@@ -1,1 +1,1 @@
-## Hi, Bae Suzy👋
+## Hi, Bae Suzy (수지) 👋
