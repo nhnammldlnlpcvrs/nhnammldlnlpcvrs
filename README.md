@@ -1,4 +1,4 @@
-## Hi, I'm con of Bae Suzy in HCMUS (수지) 👋
+## Hi, Suzy desu =) 👋
 
 
 ### GitHub Stats
