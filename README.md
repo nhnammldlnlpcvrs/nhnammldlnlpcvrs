@@ -1,6 +1,5 @@
-## Hi, Suzy desu =) 👋
-
-
+### About me
+- bae suzy aerichandesu hehehelmaoxd =]
 ### GitHub Stats
 
 <p align="center">
